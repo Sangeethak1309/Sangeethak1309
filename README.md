@@ -5,7 +5,8 @@ She is Miss.Sangeetha K .She has recently joined as a mentee in spotknack.In the
 - 👯 I’m looking to collaborate on ...Spotknack-Talent Community
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...Programming languages
-- 📫 How to reach me: ...linkedin(https://www.linkedin.com/in/sangeetha-kaliyappan),twitter(https://twitter.com/Sangeetha1309?s=09)
+- 📫 How to reach me: ...linkedin(https://www.linkedin.com/in/sangeetha-kaliyappan),
+- twitter(https://twitter.com/Sangeetha1309?s=09)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
